@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **pavanthandrangi@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1eGTT6ASSBq1bJtlbjtihDQkEPdcgrkHP/view?usp=sharing](https://drive.google.com/file/d/1eGTT6ASSBq1bJtlbjtihDQkEPdcgrkHP/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/13VcOk84Yw8oGOLHPRFtF_D-GUPT6pP7Q/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
